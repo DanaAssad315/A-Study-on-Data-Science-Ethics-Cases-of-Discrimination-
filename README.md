@@ -27,4 +27,4 @@ The paper includes references to studies, research papers, and real-world cases.
 
 ## Contact
 For any inquiries, feel free to reach out:
-- **Emails:** (mailto:1211452@student.birzeit.edu)
+- **Emails:** (mailto:dana.gassad03@gmail.com)
